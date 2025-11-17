@@ -5,7 +5,7 @@
 [strawpage](https://lighterrwise.straw.page) 📷 [atabook](https://deweyy.atabook.org/)
 
 </div>
-<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/33bf7613-2484-4117-9019-b2ca704c5a14" </p>
+<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/1091c653-e93f-4474-a187-afefa8bb03f9" </p>
 
 
 
