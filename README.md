@@ -8,10 +8,11 @@
   
   <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=27272b&label=♱&base=1663)</a>
 
-[rentry](https://rentry.co/c-rrus)   [atabook](https://skyrus.atabook.org/)  [prns](https://pronouns.cc/@ji9stars)
-
 </div>
 <p align="center"> <img width="400" height="700" src="https://github.com/user-attachments/assets/6d8f7f88-f236-49a5-a86c-3fcea383b2e6" </p>
+
+[rentry](https://rentry.co/c-rrus)   [atabook](https://skyrus.atabook.org/)  [prns](https://pronouns.cc/@ji9stars)
+
 
 
 
