@@ -10,7 +10,7 @@
 
 <div align="center">
 
-and andrew young too
+and andrew young too i irl all three of them 🤫
 
 </div>
 <p align="center"> <img width="400" height="700" src="https://github.com/user-attachments/assets/6d8f7f88-f236-49a5-a86c-3fcea383b2e6" </p>
