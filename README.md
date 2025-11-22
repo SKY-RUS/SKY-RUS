@@ -11,7 +11,7 @@
 [rentry](https://rentry.co/c-rrus)   [atabook](https://skyrus.atabook.org/)  [prns](https://pronouns.cc/@ji9stars)
 
 </div>
-<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/1091c653-e93f-4474-a187-afefa8bb03f9" </p>
-</div>
-<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/c575b370-4ad3-40ed-9e2f-7c8015e49e3c" </p>
+<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/6d8f7f88-f236-49a5-a86c-3fcea383b2e6" </p>
+
+
 
