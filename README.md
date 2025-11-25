@@ -22,7 +22,7 @@
 
 <div align="center">
 
-  [ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ.ᐟ.ᐟ
+  ㅤ[ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ.ᐟ.ᐟ
 
 
 
