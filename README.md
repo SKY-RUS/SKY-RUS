@@ -14,10 +14,14 @@
 </div>
 <p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/3ba3ac2e-2ddb-443e-be2e-7eb765980ab0" </p>
 
+︶꒷ㅤㅤ𝐥ycaon / lycaㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
+
+ㅤㅤ𐔌ㅤ'ㅤ𝐚tㅤyourㅤ𝐬erviceㅤ.ㅤ'ㅤㅤlıl
+
 
 <div align="center">
 
-  [rentry](https://rentry.co/c-rrus)   [atabook](https://skyrus.atabook.org/)  [prns](https://pronouns.cc/@ji9stars)
+  [ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ.ᐟ.ᐟ
 
 
 
