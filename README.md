@@ -6,13 +6,13 @@
 
 <div align="center">
   
-  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=8e649b&label=♱&base=1663)</a>
+  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=854858&label=♱&base=1663)</a>
 
 <div align="center">
 
 
 </div>
-<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/3ba3ac2e-2ddb-443e-be2e-7eb765980ab0" </p>
+<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/614e3e16-4568-4721-84d8-2893512180b1" </p>
 
 ︶꒷ㅤㅤ𝐥ycaon / lycaㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
