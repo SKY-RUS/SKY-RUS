@@ -14,7 +14,7 @@
 </div>
 <p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/614e3e16-4568-4721-84d8-2893512180b1" </p>
 
-︶꒷ㅤㅤ w2iㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
+︶꒷ㅤㅤ w2𝒿ㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
 ㅤㅤ𐔌ㅤ'ㅤ𝐢'llㅤprotectㅤyouㅤ𝐟oreverㅤ.ㅤ'ㅤㅤlılㅤㅤ19 
 
