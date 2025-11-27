@@ -6,13 +6,13 @@
 
 <div align="center">
   
-  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=854858&label=♱&base=1663)</a>
+  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=100f26&label=♱&base=1663)</a>
 
 <div align="center">
 
 
 </div>
-<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/614e3e16-4568-4721-84d8-2893512180b1" </p>
+<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/b9e746cc-6655-4b9a-83cb-5b6687f23146" </p>
 
 ︶꒷ㅤㅤ w2𝒿ㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
@@ -28,3 +28,5 @@
 
 
 
+</div>
+<p align="center"> <img width="900" height="500" src="https://github.com/user-attachments/assets/7232d251-fc6a-41e8-bffe-bf3545df4c87" </p>
