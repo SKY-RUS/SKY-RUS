@@ -16,7 +16,7 @@
 
 ︶꒷ㅤㅤ w2𝒿ㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
-ㅤㅤ𐔌ㅤ'ㅤ𝐢'llㅤprotectㅤyouㅤ𝐟oreverㅤ.ㅤ'ㅤㅤlılㅤㅤ19 
+ㅤㅤ𐔌ㅤ'ㅤ𝐭heㅤendingㅤisㅤonlyㅤ𝐦eaningfulㅤifㅤtheyㅤareㅤ𝐭hereㅤ.ㅤ'ㅤㅤlılㅤㅤ19 
 
 𑄹ㅤ야오이 ♡ㅤㅤノㅤㅤ₊ㅤㅤㅤ(⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠
 
