@@ -12,7 +12,7 @@
 
 
 </div>
-<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/cea35dac-47be-4946-9186-04278c80c485" </p>
+<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/6ce72796-2155-4306-8757-fb033081abda" </p>
 
 ︶꒷ㅤㅤ w2𝒿ㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
@@ -29,6 +29,7 @@
 <p align="center"> <img width="200" height="200" src="https://github.com/user-attachments/assets/de584bde-8700-440c-b5c3-2b9b94576f58" </p>
 
 
+<div align="center">
 
-
+HAPPY BDAY GOJO
 
