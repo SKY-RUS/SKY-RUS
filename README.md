@@ -12,7 +12,7 @@
 
 
 </div>
-<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/3f023bda-784c-4283-8337-07b1369d17e8" </p>
+<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/0cf9ef3c-5cb7-42c9-9c7f-e558a4a33e17" </p>
 
 ︶꒷ㅤㅤ w2𝒿ㅤㅤ`ㅤ✦ㅤ︰ㅤ𝘁mascㅤㅤ𝗯isexualㅤㅤ𓏵ㅤ,
 
@@ -23,3 +23,5 @@
 <div align="center">
 
   ㅤ[ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[str](https://ivandanshi.straw.page/)awㅤㅤ.ᐟ.ᐟ
+
+<img width="1754" height="143" alt="tumblr_9f71d9fafe316041dc1482aa1c648f04_2306fff2_2048" src="https://github.com/user-attachments/assets/2cc8d979-e0b2-43c7-9e4e-5c4ca1396c3a" />
