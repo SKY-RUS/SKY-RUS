@@ -22,4 +22,4 @@
 
 <div align="center">
 
-  ㅤ[ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤ[str](https://ivandanshi.straw.page/)awㅤㅤ.ᐟ.ᐟ
+  ㅤ[ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[str](https://ivandanshi.straw.page/)awㅤㅤ.ᐟ.ᐟ
