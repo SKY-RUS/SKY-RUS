@@ -12,11 +12,12 @@
 
 
 </div>
-<p align="center"> <img width="900" height="900" src="https://github.com/user-attachments/assets/158d674b-e09d-49f9-9a58-575b7e293ec4" </p>
+<p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/d69e8693-35b1-475a-ae72-d11221dab2ff" </p>
 ⁠
 
 <div align="center">
 
-  ㅤ[ren](https://rentry.co/c-rrus)tryㅤㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[str](https://ivandanshi.straw.page/)awㅤㅤ
+[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)
+
 
 
