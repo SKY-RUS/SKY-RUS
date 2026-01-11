@@ -12,12 +12,13 @@
 
 
 </div>
-<p align="center"> <img width="800" height="600" src="https://github.com/user-attachments/assets/a7bc584d-7701-4125-adbf-0b320136a99f" </p>
+<p align="center"> <img width="800" height="600" src="https://github.com/user-attachments/assets/c2001c2d-a5d4-4179-a378-0768626df12b" </p>
 ⁠
 
 <div align="center">
 
 [ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[ren](https://rentry.co/w2e-)try
+
 
 
 
