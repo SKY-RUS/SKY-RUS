@@ -6,18 +6,19 @@
 
 <div align="center">
   
-  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=bd426f&label=♱&base=1663)</a>
+  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=2a4868&label=♱&base=1663)</a>
 
 <div align="center">
 
 
 </div>
-<p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/cd17f5a1-a1b7-4845-8166-e199d9bb1a63" </p>
+<p align="center"> <img width="800" height="600" src="https://github.com/user-attachments/assets/a7bc584d-7701-4125-adbf-0b320136a99f" </p>
 ⁠
 
 <div align="center">
 
 [ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[ren](https://rentry.co/w2e-)try
+
 
 
 
