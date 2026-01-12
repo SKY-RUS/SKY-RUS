@@ -17,7 +17,7 @@
 
 <div align="center">
 
-[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@ji9stars)ㅤㅤ[ren](https://rentry.co/w2e-)try
+[ata](https://skyrus.atabook.org/)bookㅤㅤ[prns](https://pronouns.cc/@baekhee)ㅤㅤ[ren](https://rentry.co/w2e-)try
 
 
 
